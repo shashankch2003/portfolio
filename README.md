@@ -1,2 +1,2 @@
 # portfolio
-this is a portfolio wedsite of me aka shashank its under devlopement 
+hello there👋👋 shashank this side  portfolio wedsite is under  maintenance🏗️🚧
